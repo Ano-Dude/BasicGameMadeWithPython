@@ -24,3 +24,6 @@ First time making a game with Python
 
 And I will continue updating the script from time to time. ^^
 
+Plz send Donations here xD : paypal.me/AnoDudelol
+
+
